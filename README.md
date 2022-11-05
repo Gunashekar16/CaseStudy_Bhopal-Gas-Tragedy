@@ -1,0 +1,1 @@
+# CaseStudy_Bhopal-Gas-Tragedy
